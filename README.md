@@ -1,2 +1,3 @@
 # techno
 vsem privet !!!
+asdasdasdsda
