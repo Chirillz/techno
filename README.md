@@ -1,0 +1,2 @@
+# techno
+vsem privet !!!
